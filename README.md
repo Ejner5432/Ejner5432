@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ejner5432
+- 👋 Hi, I’m @Ejner5432 or SkyBro#0248
 - 👀 I’m interested in Playing
 - 🌱 I’m currently learning Nothing
 - 💞️ I’m looking to collaborate on Nothing
